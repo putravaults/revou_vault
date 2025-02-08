@@ -11,3 +11,4 @@
 - Loves Music
 - Gaming
 - Business
+- Economy 
