@@ -4,11 +4,11 @@
 
 ## GET TO NOW MORE ABOUT ME!
 1. **Indonesian**
-2. **20 Year olds**
+2. **22 Year olds**
 4. **Student**
 
 ## HOBBIES
 - Loves Music
 - Gaming
 - Business
-- Economy 
+- Economy and stuff
